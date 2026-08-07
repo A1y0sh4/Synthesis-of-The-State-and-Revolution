@@ -25,7 +25,7 @@ Modern centralized state power appeared in the period of the bourgeois revolutio
 
 The Commune made the bourgeois advertising phrase of "cheap government" a reality by destroying these institutions, which in fact constitute the major sources of expenditure.
 ##
-The experience of the Paris Commune of 1871 has taught us that it is impossible to liberate the oppressed class without a violent revolution that destroys the apparatus of state power that serves the ruling class to keep it subjugated. A revolution is not a simple change of government: the subjugated class must overthrow the government with which the small class of oppressors satisfied its political needs to create one that instead fulfils those of the large oppressed class.
+The experience of the Paris Commune of 1871 has taught us that it is impossible to liberate the oppressed class without a violent revolution that destroys the apparatus of state power that serves the ruling class to keep it subjugated. A revolution is not a simple change of government: the subjugated class must smash the state with which the small class of oppressors satisfied its political needs to create one that instead fulfils those of the large oppressed class.
 
 The first decree of the Commune was the abolition of the standing army and its replacement by the entire revolutionary people in arms. The police, as well as any other branch of the administration, were immediately stripped of their political powers and were turned into an instrument revocable at any time. Public service had to be performed for the average wage of a good worker. The magistrates were stripped of their sham independence and were made elected by universal suffrage, accountable to the people and immediately recallable.
 
