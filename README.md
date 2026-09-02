@@ -3,7 +3,7 @@ As long as the great revolutionaries are alive, the ruling classes always reward
 
 Since the distortions of Marxism have spread unprecedentedly, it is our task to re-establish Marx's true doctrine of the state.
 ##
-The discovery of agriculture and the urban revolution made possible the stable production of an economic surplus. Once this certain stage of development has been reached, society is divided into classes with irreconcilable economic interests; a class society is formed in which a small class of exploiters can systematically appropriate the labor-power of a large class of exploited. In order that the antagonistic classes may not destroy themselves and society in a sterile struggle, it arises the necessity of a power which is, in appearance, above society and which can therefore mitigate the conflict between the classes. That power is the state.
+The discovery of agriculture and the urban revolution made possible the stable production of an economic surplus. Once this certain stage of development has been reached, society is divided into classes with irreconcilable economic interests; a class society is formed in which a small class of exploiters can systematically appropriate the surplus-value created using the labor-power of a large class of exploited. In order that the antagonistic classes may not destroy themselves and society in a sterile struggle, it arises the necessity of a power which is, in appearance, above society and which can therefore mitigate the conflict between the classes. That power is the state.
 
 The presence of the state is necessary as long as there are class antagonisms to be mitigated that cannot be reconciled. If the reconciliation of classes were possible, the state could neither arise nor continue to exist.
 ##
